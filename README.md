@@ -2,7 +2,7 @@
 Hello I am Robert Jones! I am 20 Years old (well almost) and I am in my second semester in College! I am currently looking for a career in animation and graphic design! 
 192933757_2982320102048165_5775693900987869017_n.jpg![image](https://user-images.githubusercontent.com/98345898/151428701-0c8084ad-8bd4-4c00-9ef4-b444dd3bd81b.png)
 
-I like working on animation and using computers, but I like to
+I **love** working on animation and using computers, but I like to
 disconnect from technology and go swimming (seasonal) and walk on the treadmill! I am also very artistic and I love drawing and making music compositions on my
 Yamaha Piano for various animated projects![68736972_2424466077833573_3447662250993647616_n](https://user-images.githubusercontent.com/98345898/151428450-37368617-cef0-4988-a5eb-5fb748e1348f.jpg)
 I have two parents, a sister, and two dogs
