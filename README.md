@@ -20,3 +20,4 @@ As much as I am into current brands, I am also into a lot of '80s stuff like the
 Here's my little side business for animation: https://sites.google.com/view/diversitydepth-studios/home
 I am looking forward to coding and for a wonderful year here at Millersville! Go Marauders!
 ![IMG_0401](https://user-images.githubusercontent.com/98345898/151431518-e84e3a61-ff29-4752-89d7-12b43113c0ca.jpg)
+![a](https://user-images.githubusercontent.com/98345898/153498172-f67871b8-22d7-45e6-a25a-67bcc6ac05a8.jpg)
